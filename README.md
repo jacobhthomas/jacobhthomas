@@ -1,4 +1,5 @@
 ### Find me on:
+- Everywhere at https://jacobhthomas.com/social
 - Twitter at https://twitter.com/X1_Atomic
 - Discord at https://discord.gg/TeSnxrjBac
 - Linkedin at https://linkedin.com/in/jacobhthomas/
