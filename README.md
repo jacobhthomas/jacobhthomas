@@ -1,8 +1,7 @@
 ### Find me on:
 - Everywhere at https://jacobhthomas.com/
-- Linkedin at https://linkedin.com/in/jacobhthomas/
+- LinkedIn at https://linkedin.com/in/jacobhthomas/
 - Twitter at https://twitter.com/jacobhthomas001/
-- Discord at https://discord.gg/TeSnxrjBac
 - Instagram at https://instagram.com/jacobhthomas/
 
 <!--
